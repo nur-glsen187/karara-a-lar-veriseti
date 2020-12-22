@@ -1,0 +1,1 @@
+# karara-a-lar-veriseti
